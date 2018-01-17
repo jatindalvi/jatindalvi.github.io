@@ -1,1 +1,0 @@
-# jatindalvi.github.io
